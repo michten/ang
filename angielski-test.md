@@ -123,16 +123,16 @@ If people complained,               things would change. (People don’t complai
 
 ### Long And Happy Life
 
-1 whenever possible                                                         1 at every opportunity
-2 drink alcohol quickly or in large amounts                                 2 knock back 
-3 be about to                                                               3 be set to
-4 have an extremely important or fundamental role (in something)            4 play a big part
-5 copy something that someone else does because it will be good for you     5 take a leaf out of someone’s book
-6 a lot of                                                                  6 loads of
-7 meet in order to discuss something or to spend time together              7 get together
-8 have an indication that something else exists, is true, or will happen    8 show signs of
-9 try something                                                             9 give something a go
-10 be especially careful in order to avoid something unpleasant             10 be on the safe side
+1 whenever possible                                                         1 at every opportunity  
+2 drink alcohol quickly or in large amounts                                 2 knock back  
+3 be about to                                                               3 be set to  
+4 have an extremely important or fundamental role (in something)            4 play a big part  
+5 copy something that someone else does because it will be good for you     5 take a leaf out of someone’s book  
+6 a lot of                                                                  6 loads of  
+7 meet in order to discuss something or to spend time together              7 get together  
+8 have an indication that something else exists, is true, or will happen    8 show signs of  
+9 try something                                                             9 give something a go  
+10 be especially careful in order to avoid something unpleasant             10 be on the safe side  
 
 
 1 do false accounting                                                                     1 cook the books
