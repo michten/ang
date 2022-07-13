@@ -133,64 +133,64 @@ If people complained,               things would change. (People don’t complai
 8 have an indication that something else exists, is true, or will happen    8 show signs of  
 9 try something                                                             9 give something a go  
 10 be especially careful in order to avoid something unpleasant             10 be on the safe side  
-
-
-1 do false accounting                                                                     1 cook the books
-2 be out of favour with someone                                                           2 be in someone’s bad books
-3 contained in a list of members, employees or clients                                    3 on the books
-4 being highly thought of (by someone)                                                    4 be in someone’s good books
-5 be able to know someone’s thoughts from his or her body language or other behaviour     5 read someone like a book
-6 strictly according to the rules                                                         6 by the book
-7 make a decision about what something is like just by looking at it                      7 judge a book by the cover
-8 disregard all previous ideas on a subject and start again                               8 tear up the rule book
-
-
-
+  
+  
+1 do false accounting                                                                     1 cook the books  
+2 be out of favour with someone                                                           2 be in someone’s bad books  
+3 contained in a list of members, employees or clients                                    3 on the books  
+4 being highly thought of (by someone)                                                    4 be in someone’s good books  
+5 be able to know someone’s thoughts from his or her body language or other behaviour     5 read someone like a book  
+6 strictly according to the rules                                                         6 by the book  
+7 make a decision about what something is like just by looking at it                      7 judge a book by the cover  
+8 disregard all previous ideas on a subject and start again                               8 tear up the rule book  
+  
+  
+  
 ### What Money Habits Say About You
 
-1 keep money for a time of need                                      1 save for a rainy day 
-2 spend money on something which you like or enjoy                   2 treat oneself
-3 a day on which someone receives their salary or wages              3 payday
-4 spend (money) freely or extravagantly                              4 splurge
-5 give money to someone who agrees to pay it back in the future      5 lend
-6 keep money for future use                                          6 save
-7 an amount of money that you receive unexpectedly                   7 windfall
-8 a short period of time in which someone buys a lot of things       8 shopping spree
-9 use your money in a way that you hope will increase its value      9 invest
-10 (informal) take money for oneself, especially dishonestly         10 pocket
-11 coins made from copper                                            11 coppers
-
-
-1 perfectly fine                                                        1 as right as rain
-2 rain very heavily                                                     2 rain cats and dogs
-3 whatever happens; no matter what the circumstances                    3 come rain or shine
-4 decline an invitation now, with the intention to take it up later     4 take a rain check
-5 when one bad thing happens, a lot of other bad things also happen     5 it never rains but it pours
-6 spoil someone’s plans; spoil someone’s pleasure or celebrations       6 rain on someone’s parade
-
-
-
+1 keep money for a time of need                                      1 save for a rainy day  
+2 spend money on something which you like or enjoy                   2 treat oneself  
+3 a day on which someone receives their salary or wages              3 payday  
+4 spend (money) freely or extravagantly                              4 splurge  
+5 give money to someone who agrees to pay it back in the future      5 lend  
+6 keep money for future use                                          6 save  
+7 an amount of money that you receive unexpectedly                   7 windfall  
+8 a short period of time in which someone buys a lot of things       8 shopping spree  
+9 use your money in a way that you hope will increase its value      9 invest  
+10 (informal) take money for oneself, especially dishonestly         10 pocket  
+11 coins made from copper                                            11 coppers  
+  
+  
+1 perfectly fine                                                        1 as right as rain  
+2 rain very heavily                                                     2 rain cats and dogs  
+3 whatever happens; no matter what the circumstances                    3 come rain or shine  
+4 decline an invitation now, with the intention to take it up later     4 take a rain check  
+5 when one bad thing happens, a lot of other bad things also happen     5 it never rains but it pours  
+6 spoil someone’s plans; spoil someone’s pleasure or celebrations       6 rain on someone’s parade  
+  
+  
+  
 ### Google Tells What is Means to be a Good Boss With The Emphasis on DO and MAKE Structures
 
-1 a person in charge of a worker or organisation                                                             1 boss
-2 a person responsible for controlling or administering all or part of a company                             2 manager
-3 a person employed for wages or salary                                                                      3 employee
-4 someone whose job is to teach people to improve at a job, sport, etc.                                      4 coach
-5 a person who tries to control every part of a situation, including small details                           5 micromanager
-6 a paid position of regular employment                                                                      6 job
-7 an occupation undertaken for a significant period of a person’s life and with opportunities for progress   7 career
-8 be in charge of (a company, establishment, or undertaking); administer; run                                8 manage
-
-
-If they are new, they will take time understanding the team before they MAKE big changes.
-...a list of the things that the best bosses DO.
-If your boss frequently tells you how to DO small tasks...
-...instead of trying to DO everything for you.
-Ideally, your boss should know how to DO the job...
-In reality, most people just want their boss to MAKE decisions quickly...
-
-
-Make: an appointment / an offer / money / a fortune / a suggestion / breakfast / the bed / a reservation / an excuse / a phone call / a profit / friends
-
-Do: a favour / work / the shopping / your homework / your hair / exercise
+1 a person in charge of a worker or organisation                                                             1 boss  
+2 a person responsible for controlling or administering all or part of a company                             2 manager  
+3 a person employed for wages or salary                                                                      3 employee  
+4 someone whose job is to teach people to improve at a job, sport, etc.                                      4 coach  
+5 a person who tries to control every part of a situation, including small details                           5 micromanager  
+6 a paid position of regular employment                                                                      6 job  
+7 an occupation undertaken for a significant period of a person’s life and with opportunities for progress   7 career  
+8 be in charge of (a company, establishment, or undertaking); administer; run                                8 manage  
+  
+  
+If they are new, they will take time understanding the team before they MAKE big changes.  
+...a list of the things that the best bosses DO.  
+If your boss frequently tells you how to DO small tasks...  
+...instead of trying to DO everything for you.  
+Ideally, your boss should know how to DO the job...  
+In reality, most people just want their boss to MAKE decisions quickly...  
+  
+  
+Make: an appointment / an offer / money / a fortune / a suggestion / breakfast / the bed / a reservation / an excuse / a phone call / a profit / friends  
+  
+Do: a favour / work / the shopping / your homework / your hair / exercise  
 
