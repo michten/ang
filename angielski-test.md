@@ -88,35 +88,28 @@ to talk about the result of an imagined future situation, when we believe the im
 conditional clause                  main clause  
 if + present simple                 modal verb with future meaning  
                                    (shall/should/will/would/can/could/may/might)  
-  
+    
  - If he gets a job in Liverpool,   he’ll have to get up early. It’s a long drive.  
  - If Sheila rings,                 I might ask her to come over for dinner.  
-
-
+  
+  
 ### Second
 to talk about the possible result of an imagined situation in the present or future.  
 We say what the conditions must be for the present or future situation to be different.  
 
-conditional clause                  main clause
-if + past simple                    modal verb with future-in-the-past meaning
-                                   (should/would/might/could)
-
-If you asked her nicely,            she would say yes, I’m sure.
-If people complained,               things would change. (People don’t complain at themoment.)
-
-
-
-
+conditional clause                  main clause  
+if + past simple                    modal verb with future-in-the-past meaning  
+                                   (should/would/might/could)  
+  
+If you asked her nicely,            she would say yes, I’m sure.  
+If people complained,               things would change. (People don’t complain at themoment.)  
+  
+  
 ## Passive Voice
-
 ### Present Simple
-
 ### Past Simple
-
 ### Present Perfect
-
 ### Future Simple
-
 
 
 ## Words
